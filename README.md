@@ -10,7 +10,7 @@
 
 <br><br><br>
 
-Im a cybersecurity student finishing off my 3rd year of an Information Security Degree. I've had an interest in cybersecurity ever since I was hacked as a kid!(ironic right?) I highly enjoy learning new concepts through self-learning and I look forward to an opportunity to learn more about the industry under the guidance of professionals.
+Im a cybersecurity student finishing off my 3rd year of an Information Security Degree. I've had an interest in cybersecurity ever since I was hacked as a kid!(ironic right?) I highly enjoy learning new concepts through self-learning and I always look forward to an opportunity to learn more about the industry under the guidance of professionals.
  
 
  
